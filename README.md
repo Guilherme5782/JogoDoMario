@@ -1,1 +1,1 @@
-Oi eu sou o Mário
+Oi, você conhece o Mário?
